@@ -130,6 +130,8 @@ HH Hacking Hackathons: https://www.facebook.com/groups/857498367601915/
 
 HH Find Teammates: https://www.facebook.com/groups/454867721317036/
 
+Hedgehog Hackers: https://www.facebook.com/groups/hedgehoghackers
+
 Joke/Parody
 ------------
 **HH Cirque du Twerque**: https://www.facebook.com/groups/HHCirqueDuTwerque/
